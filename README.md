@@ -1,2 +1,2 @@
-# csccfolio31
-Chicago Stereo Camera Club ISU CODE31 Photos
+# csccfolio32
+Chicago Stereo Camera Club ISU CODE32 Photos
